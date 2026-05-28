@@ -8,7 +8,7 @@
 
 <div align=center>
 
-[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/kMSzHf9h/bet-now-button.png)](https://lkzq.cc/fd1b)
+[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/90H8VHCH/bet-now-button-(1).png)](https://lkzq.cc/fd1b)
 
 </div>
 

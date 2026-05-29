@@ -8,7 +8,7 @@
 
 <div align=center>
 
-[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/020j1yQk/Chat-GPT-Image-29-maa-2026-g-19-41-40.png)](https://lkzq.cc/fd1b)
+[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/CKN9w983/bet-now-5x-smaller.png)](https://lkpq.cc/6f115e43)
 
 </div>
 
@@ -124,7 +124,7 @@ The 2026 World Cup clash between Norway and France is a meeting of two superstar
 
 <div align=center>
 
-[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/MHb6w9zC/Chat-GPT-Image-29-maa-2026-g-19-26-13.png)](https://lkzq.cc/fd1b)
+[![▶ BET ON THE MATCH NOW](https://i.postimg.cc/JnYgkJPY/claim-bonus-3x-smaller.png)](https://lkpq.cc/90a694)
 
 </div>
 
